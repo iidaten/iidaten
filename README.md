@@ -1,3 +1,5 @@
-this is still a wip so have an image of n25 len
+this is still a wip
 
-<img src=https://i.pinimg.com/1200x/08/95/e6/0895e61afffecb965f7c22bab21ebea0.jpg width="200" height="400" />
+me and my awesome husband.....
+
+<img src=https://i.pinimg.com/1200x/af/9d/f9/af9df9eec63e9295a683fdc2bf0456c4.jpg width="200" height="400" />
