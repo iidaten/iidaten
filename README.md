@@ -1,8 +1,8 @@
 <img src=https://64.media.tumblr.com/33934a5225ec829dda86a99ce5f9ce5b/93ce3cb722e5249f-a4/s1280x1920/9a0582a6c610922f50f2e31de2a2fd946a10af46.pnj width="400" height="300" /><img src=https://64.media.tumblr.com/33934a5225ec829dda86a99ce5f9ce5b/93ce3cb722e5249f-a4/s1280x1920/9a0582a6c610922f50f2e31de2a2fd946a10af46.pnj width="400" height="300" />
 # <sub>⌅ ㅤㅤ﹒ㅤabout meㅤᶻᶻ</sub>
-𓏲⠀ ：hi i'm tenya, liam, or js whatever you wanna call me ^_^ i am a minor so please don't be a weirdo...... !! huge tenya fictkin and fan, pls don't try and compete with me i really dislike when people say they're the number one fan of something 😓😓 i have a horrible memory and usually i forget who people are on my friendlist if i ask don't take it personally it happens to almost everyone i meet </3
+𓏲⠀ ：hi i'm tenya, liam, or js whatever you wanna call me ^_^ i am a minor so please don't be a weirdo...... !! huge tenya fictkin and fan, he's me i'm him.. i also have a absolutely horrendous memory and usually i forget who people are on my friendlist if i ask don't take it personally it happens to almost everyone i meet </3
 
-i have a very lovely bf slash husband he's so sweet and kind and lovely and cute nd i js love him so much hi noah if you're reading this!!!!!!
+i have a very lovely bf slash husband he's so sweet and kind and lovely and cute nd i js love him so much i want to kiss and cuddle him everyday 🥹 hi noah if you're reading this!!!!!! ilysmmmm!!!
 
 # <sub>──　﹒　interaction　﹐</sub>
 𓏲⠀ ：dni: under 10 and over 25 unless i know you personally! endeavour fans, basic dni criteria, darkshippers, megan, bonbon, larz, etc, and anyone friends with them, if you're on my bfs dni, um idk what else. i somewhat block freely and if you annoy me you're probably gonna get hidden
