@@ -12,7 +12,7 @@ thin-ice: over 20, stain, dandy's world fandom, iida selfshippers (i don't reall
 int: tensei plspls im begging please, alan becker fans, tenya fans, anyone that likes any of my interests
 
 # <sub>≻ㅤ﹒ㅤinterestsㅤ﹒ㅤ</sub>
-𓏲⠀ ：main interests: mha, alan becker, no i'm not a human, tenya iida
+𓏲⠀ ：main interests: mha, alan becker, no i'm not a human, tenya iida, alex g
 
 other interests: stardew valley, ddlc, roblox, phighting, dandy's world, sewh, south park, object shows, bfdi, ii, 3fs, poppy playtime, fnaf, thedapperwaffle, persona 3, todoiida & bakuiida.., fnf, picos school, parappa the rapper, regretevator uhm there's so much more that i'm probably forgetting so i'll add it later!
 
