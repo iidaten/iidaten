@@ -7,7 +7,7 @@ i have a very lovely bf slash husband he's so sweet and kind and lovely and cute
 always w2i unless i'm actively talking to my friends! I'm usually offtab unless with my bf..
 
 # <sub>──　﹒　interaction　﹐</sub>
-𓏲⠀ ：dni: under 10 and over 25 unless i know you personally! endeavour fans, basic dni criteria, darkshippers, megan, bonbon, larz, etc, and anyone friends with them, if you're on my bfs dni, um idk what else. i somewhat block freely and if you annoy me you're probably gonna get hidden
+𓏲⠀ ：dni: under 10 and over 25 unless i know you personally! endeavour fans, basic dni criteria, darkshippers, megan, bonbon, larz, etc, and anyone friends with them, if you're on my bfs dni, cruelty and anyone associated with them, radqueer or transid, um idk what else. i somewhat block freely and if you annoy me you're probably gonna get hidden
 
 thin-ice: over 20, stain, dandy's world fandom, iida selfshippers (i don't really mind iida selfshippers but it can bother me if you're being weird), those kind of iida fans frowns, dbls (mainly towards my main kins)
 
