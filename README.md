@@ -2,7 +2,7 @@
 # <sub>⌅ ㅤㅤ﹒ㅤabout meㅤᶻᶻ</sub>
 𓏲⠀ ：hi i'm tenya, liam, or js whatever you wanna call me ^_^ i am a minor so please don't be a weirdo...... !! huge tenya fictkin and fan, he's me i'm him.. i also have a absolutely horrendous memory and usually i forget who people are on my friendlist if i ask don't take it personally it happens to almost everyone i meet </3
 
-i have a very lovely bf slash husband he's so sweet and kind and lovely and cute nd i js love him so much i want to kiss and cuddle him everyday 🥹 hi noah if you're reading this!!!!!! ilysmmmm!!!
+i have a very lovely bf slash husband he's so sweet and kind and lovely and cute nd i js love him so much i want to kiss him everyday 🥹 hi noah if you're reading this!!!!!! ilysmmmm!!!
 
 always w2i unless i'm actively talking to my friends! I'm usually offtab unless with my bf..
 
