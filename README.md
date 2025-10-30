@@ -4,7 +4,7 @@
 
 i have a very lovely bf slash husband he's so sweet and kind and lovely and cute nd i js love him so much i want to kiss him everyday 🥹 hi noah if you're reading this!!!!!! ilysmmmm!!!
 
-always w2i unless i'm actively talking to my friends! I'm usually offtab unless with my bf..
+always w2i unless i'm actively talking to my friends! I'm usually offtab
 
 # <sub>──　﹒　interaction　﹐</sub>
 𓏲⠀ ：dni: under 10 and over 25 unless i know you personally! endeavour fans, basic dni criteria, darkshippers, megan, bonbon, larz, etc, and anyone friends with them, if you're on my bfs dni, cruelty and anyone associated with them, radqueer or transid, um idk what else. i somewhat block freely and if you annoy me you're probably gonna get hidden
